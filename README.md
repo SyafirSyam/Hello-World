@@ -1,2 +1,7 @@
-# Hello-World
-Menambang Bitcoin itu memang sangat sulit, tapi jika kita mau untuk terus berusaha, yakinlah pada saatnya nanti akan berhasil.
+#Hello-World
+
+Halo sahabat
+
+Disini Syafir Syam sangat bangga bisa menjumpai kalian semua,
+Aku berharap, semoga sahabat semua selalu di beri kekuatan dan semangat,
+Untuk terus berusaha mencapai sukses.
